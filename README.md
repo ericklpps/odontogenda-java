@@ -17,8 +17,6 @@ Erick Lopes Silva - RM 553927
 <br>
 Gabriel Sá Bragança - RM 554064
 <br>
-Marco Aurélio Ennes - 553201
-<br>
 <br>
 <br>
 https://docs.google.com/document/d/1jFfC5pVNn_8LZS9eR8qEI3bxVcUmcqOXr8VPT_KBar4/edit?hl=pt-br
