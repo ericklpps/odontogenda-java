@@ -20,3 +20,9 @@ Gabriel Sá Bragança - RM 554064
 <br>
 <br>
 https://docs.google.com/document/d/1jFfC5pVNn_8LZS9eR8qEI3bxVcUmcqOXr8VPT_KBar4/edit?hl=pt-br
+<br>
+<br>
+<h3>Apresentação do projeto.</h3>
+<br>
+<br>
+https://www.canva.com/design/DAGTjhByqTo/CSkcuMKTFbCwmzW1VgJ6kw/view?utm_content=DAGTjhByqTo&utm_campaign=designshare&utm_medium=link&utm_source=recording_view
